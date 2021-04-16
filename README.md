@@ -1,1 +1,1 @@
-https://KatrinZh.github.io/web_mogo/index.html
+https://KatrinZh.github.io/web_mogo/
