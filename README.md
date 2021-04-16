@@ -1,1 +1,1 @@
-https://KatrinZh.github.io/web_mogo/cv
+https://KatrinZh.github.io/web_mogo/
